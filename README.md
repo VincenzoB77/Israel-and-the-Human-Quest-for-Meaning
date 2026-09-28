@@ -3,7 +3,11 @@
 
 Dr. Vincenzo Bumbalo, MD 
 
-Analytical Psychotherapist Jungian-oriented Psychoanalyst Clinical Phenomenologist
+Analytical Psychotherapist 
+
+Jungian-oriented Psychoanalyst 
+
+Clinical Phenomenologist
 
 Independent Researcher in Psychology and Linguistics 
 
