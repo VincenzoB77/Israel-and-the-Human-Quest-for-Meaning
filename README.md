@@ -141,7 +141,9 @@ The philosopher Martin Buber emphasized dialogue as the foundation of authentic 
 
 Israeli society, shaped by remarkable diversity, offers continual opportunities for dialogue among people of different cultural backgrounds, traditions, and life experiences.
 
-This diversity transforms belonging into an active process rather than a static condition. Identity becomes something continuously negotiated, renewed, and enriched.
+This diversity transforms belonging into an active process rather than a static condition. 
+
+Identity becomes something continuously negotiated, renewed, and enriched.
 
 **Anthropological Continuity Across Millennia**
  
