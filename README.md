@@ -203,7 +203,9 @@ Israel demonstrates how these dimensions can converge within a society.
 
 Learning is not viewed merely as a means of economic advancement. It functions as a cultural and ethical obligation.
 
-Knowledge is understood as a source of dignity. Questions are valued alongside answers.
+Knowledge is understood as a source of dignity. 
+
+Questions are valued alongside answers.
 
 Intellectual curiosity is encouraged rather than suppressed. 
 
