@@ -191,7 +191,9 @@ One of the most distinctive characteristics of Jewish civilization and modern Is
 
 From psychological, psychoanalytic, phenomenological, and anthropological perspectives alike, education occupies a central role in human development.
 
-Psychologically, education enhances competence and self-efficacy. Psychoanalytically, it contributes to identity formation.
+Psychologically, education enhances competence and self-efficacy. 
+
+Psychoanalytically, it contributes to identity formation.
 
 Phenomenologically, it expands horizons of understanding. 
 
